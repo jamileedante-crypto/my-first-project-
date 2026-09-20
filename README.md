@@ -1,1 +1,1 @@
-# my-first-project-hi I'm focusing on my goal for my dream and I wanted military 
+# my-first-project-hi I'm focusing on my goal for my dream and I wanted to be military when I finally graduated
